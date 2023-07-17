@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @GingerWackyPochieKashiOnionGarlicLingJu
-- 👀 I’m interested in a lot of things.
-- 🌱 I’m currently learning new things everyday.
-- 📫 How to reach me ... via email or through github.
+- Call me Ange
+- 👀 I’m interested in a lot of things, working out, cleaning the house. You name it.
+- 🌱 I’m currently learning new things everyday but I prefer to learn new languages.
+- 📫 How to reach me ... You can reach me through my medium, github, youtube or through email.
 
 <!---
 GingerWackyPochieKashiOnionGarlicLingJu/GingerWackyPochieKashiOnionGarlicLingJu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

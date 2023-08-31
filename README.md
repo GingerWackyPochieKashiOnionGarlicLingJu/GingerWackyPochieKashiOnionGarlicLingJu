@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @GingerWackyPochieKashiOnionGarlicLingJu
-- ANGEL HERE
+- 👋 Hi, I’m ANGEL
 - 👀 I’m interested in a lot of things, working out, cleaning the house. You name it.
 - 🌱 I’m currently learning new things everyday but I prefer to quality time with my cats and learning new things through podcast or through youtube.
 - 📫 How to reach me ... You can reach me through my medium, github, youtube or through email.
